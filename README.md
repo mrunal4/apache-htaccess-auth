@@ -108,6 +108,6 @@ Created and Maintained by : Mrunal Nachankar "<mrunal4888@gmail.com>"
 
 ---
 
-Thank you for using it. In case of any queries or suggestion feel fre to write back on mrunal4888@gmail.com.
+Thank you for using it. In case of any queries or suggestion feel free to write back on mrunal4888@gmail.com
 
 ---
